@@ -18,4 +18,5 @@ https://youtube.com/shorts/UvLGh_-ZDfk?feature=share
 
 Myndbönd af bíl:
 https://youtu.be/DDdEI9AAtRU 
+
 https://youtube.com/shorts/hyV00rGJc2k?feature=share
